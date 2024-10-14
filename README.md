@@ -5,8 +5,8 @@ Los visigodos fueron una rama de los pueblos godos, que a su vez pertenecen a lo
 
 ## Indice
 
-1.Epoca
-2.Arquitectura
-3.Obras
+1. Epoca
+2. Arquitectura
+3. Obras
 
 ## Referencias
